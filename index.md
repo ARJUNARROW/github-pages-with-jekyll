@@ -2,4 +2,8 @@
 title: "Welcome to my blog"
 ---
 
-I'm glad you are here. I plan to talk about ...
+LEARNING TO CREATE WEBSITE,APPS,ANDROID,and many more
+
+INTERNET KIND OF THINGS I DISCOVERED MY TRUE LOVE 
+
+GOALS : CREATING OPEN SOURCE OF THINGS AND BRING VALUES IN PEOPLE LIFE
